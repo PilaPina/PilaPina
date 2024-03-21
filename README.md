@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PilaPina
-- 👀 I’m interested in coding, design, art, graphic novels and a whole lot of nerdy stuff. 
+- 👀 I’m into coding, design, art, graphic novels and a whole lot of nerdy stuff. 
 - :dragon: Studied art and work as an illustrator. 
 - 🌱 I’m currently learning web developement and feeling :heart_eyes: :metal: about it
 
