@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PilaPina  -  Sólveig Alda - 
+- 👋 Hi, I’m Sólveig Alda
 - 👀 I’m into coding, design, art, graphic novels and a whole lot of nerdy stuff. 
 - :dragon: Studied art and work as an illustrator. 
 - 🌱 I’m currently learning web developement and feeling :heart_eyes: :metal: about it
